@@ -1,4 +1,4 @@
-### *<div align="center">"Mastering the Art of Software Support: A Comprehensive Guide to Troubleshooting and Customer Success 🚀"</div>*  
+### *<div align="center">"Mastering the Art of Software Support:A Comprehensive Guide to Troubleshooting and Customer Success"</div>*  
   
 
 <div align="center">
